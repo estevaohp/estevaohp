@@ -1,7 +1,7 @@
 ## Olá!!😀
 
 - 🔭 Meu nome é Estevão Henrique. Tenho 17 anos!
-- 🌱 Atualmente estou me desenvolvendo em algumas das principais linguagens de programação, visando me encontrar e me desenvolver cada dia mais!
+- 🌱 Atualmente estou buscando conhecimento nas principais linguagens de programação disponiveis no mercado, me desenvolvendo assim cada dia mais e mais!
 - 👯 Procuro uma oportunidade de aprendizagem na aréa de Desenvolvimento e DBA, almejando me encontrar em uma dessas duas aréas que admiro muito.
 - 📫 Encontre - me através dos links abaixo:
  
