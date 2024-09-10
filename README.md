@@ -1,4 +1,4 @@
-## Hwy Guys!!😀
+## Hey Guys!!😀
 
 *In english*
 - 🔭 My name is Estevão Henrique. I'm 20 years old!
