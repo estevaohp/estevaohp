@@ -1,7 +1,7 @@
 ## Hey Guys!!😀
 
 *In english*
-- 🔭 My name is Estevão Henrique. I'm 20 years old!
+- 🔭 My name is Estevão Henrique. I'm 21 years old!
 - 🌱 I'm currently seeking knowledge in the main programming languages ​​available on the market, thus developing myself more and more every day!
 - 📫 Find me through the links below, as well as the links in bio:
 
